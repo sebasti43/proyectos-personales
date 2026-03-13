@@ -1,2 +1,2 @@
-# proyectos-personales
-En este apartado encontras mis proyectos academicos y profesionales
+# Logros y Certificaciones
+En este apartado encontras algunos de mis logros, certificaciones y proyectos personales
